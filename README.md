@@ -18,4 +18,5 @@
 - Microcontrollers
 
 ## 📫 Contact
-Coming soon...
+📧 Email: uhudraza999@gmail.com
+🌍 Open to collaboration & freelance projects
